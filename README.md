@@ -1,4 +1,4 @@
-## https://ile05na2.285.works
+## https://ileto05na2.285.works
 The site answers the most important question of every Pole: **how much is half a liter of vodka for two**
 
 (In Polish)
